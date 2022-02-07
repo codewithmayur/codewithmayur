@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on  Web Development.
 - 🤔 I’m looking for help with 
 - 💬 Ask me about Web Developemnt.
-- 📫 How to reach me: msrcp7@gmail.com , LinkedIn-Mayur Chavan (https://www.linkedin.com/feed/)
+- 📫 How to reach me: msrcp7@gmail.com
 
 - 😄 Pronouns: 
 - ⚡ Fun fact: I spend my free time to play cricket.
